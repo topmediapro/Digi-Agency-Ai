@@ -26,7 +26,7 @@ I'm going to disclose how this works right in this letter, but first, you ought 
 
 If didn’t have to have any major tech skills, if no marketing experience was needed, and if a minimal time commitment was all you had to put in… do you think you could do this!?
 
-[**Download Digi Agency Ai System and Training Now!**](https://warriorplus.com/o/view/g87jmt/od)
+[**Download Digi Agency Ai System and Training Now!**](https://warriorplus.com/o2/a/ts2jm99/0)
 
 ## INTRODUCING: Digi Agency Ai
 
@@ -94,7 +94,7 @@ This "Digi Agency Ai" Process Makes it SO much EASIER ...
 
 P.S. You've seen what Digi Agency Ai can do for you... so  doesn't getting started NOW just makes sense (it's a complete no-brainer)...
 
-[Download Digi Agency Ai System and Training Now!](https://warriorplus.com/o/view/g87jmt/od)
+[Download Digi Agency Ai System and Training Now!](https://warriorplus.com/o2/a/ts2jm99/0)
 
 
 --
